@@ -1,2 +1,2 @@
-## Richard Liek
+Richard Liek
 
